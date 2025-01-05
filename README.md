@@ -1,0 +1,1 @@
+this system helps the customer to pay the tax for the highway that they use and also aims to overcome the disadvantages of Toll plaza systems
